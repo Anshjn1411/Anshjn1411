@@ -31,7 +31,7 @@ Lately, I’ve been exploring **DevOps** tools and practices to streamline devel
 ### 📫 Let's Connect!
 
 - 🔗 [LinkedIn]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/ansh-jain-994764288/))  
-- ✉️ anshjain@example.com  
+- ✉️ anshjn1411@gmail.com  
 
 
 ---
